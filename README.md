@@ -1,1 +1,1 @@
-# -sokuhgraphics-.GitHub.io
+# sokuhgraphics.GitHub.io
